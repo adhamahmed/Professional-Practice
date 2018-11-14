@@ -5,3 +5,4 @@ Shared Document: https://drive.google.com/open?id=1m7nYGJ7Bd4eSSggDNPhM5_xtcjfrl
 Materials: https://drive.google.com/open?id=1K5adrGbIFsRctc1gNo8l14bi4Jyf9uMd
 
 
+![](https://i.imgur.com/OTl6aFy.png)
